@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently active on data sorcerers<br>👯 I’m looking to collaborate on arutala app<br>🤝 I’m looking for help with web app<br>🌱 I’m currently learning new tech <br>💬 Ask me about tech <br>⚡ Fun fact i'am beatbox enthusiast to
+🔭 I’m currently active on data sorcerers<br>👯 I’m looking to collaborate on arutala app<br>🤝 I’m looking for help with web app<br>🌱 I’m currently learning new tech <br>💬 Ask me about tech <br>⚡ Fun fact i'am beatbox enthusiast too
 
 
 ## 🌐 Socials:
